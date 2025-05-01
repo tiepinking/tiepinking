@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+早安您好
+我是陳頤
+國立中山大學財務管理學系
+高雄人
+也是綠豆加薏仁
